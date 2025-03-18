@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **pandeyyashanshraj000@gmail.com**
 
-- ⚡ Fun fact **Learn|Code|Build|Repeat**
+- ⚡ Fun fact **Learn | Code | Build | Repeat**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
